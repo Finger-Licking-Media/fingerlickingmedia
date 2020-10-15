@@ -38,10 +38,11 @@ Het zijn niet alleen de hashtags waardoor je meer bereik op je post kan generere
 # 8. Experimenteren kun je leren
 Een goed lopend socialmediakanaal zet je niet even snel op. Good things take time! Rome is ook niet in één dag gebouwd. Dit is een lopend proces waarbij het belangrijk is om te blijven evalueren en experimenten. 
 
+Experimenteer bijvoorbeeld eens met de lengte van je posts, tijd van plaatsing, zet eens een advertentie in, wissel af tussen foto en video, deel infographics, maak stories, herhaal goedlopende posts, gebruik wisselende hashtags of deel bijvoorbeeld een keer user-generated content. Er zijn zoveel mogelijkheden; wees creatief en leer wat voor jouw bedrijf het beste werkt.
+
 ![foodfotografie voor Frank's Food & Grill](/assets/images/blog/cocktails-food-fotografie.jpg)
 
-# 9. Experimenteer bijvoorbeeld eens met de lengte van je posts, tijd van plaatsing, zet eens een advertentie in, wissel af tussen foto en video, deel infographics, maak stories, herhaal goedlopende posts, gebruik wisselende hashtags of deel bijvoorbeeld een keer user-generated content. Er zijn zoveel mogelijkheden; wees creatief en leer wat voor jouw bedrijf het beste werkt.
-Het oog wil ook wat
+# 9. Het oog wil ook wat
 Social media platforms zijn allemaal visuele kanalen en het draait hierbij voornamelijk om beeld. Zorg er dus voor dat er op jouw content ook daadwerkelijk iets te zien is. Hoe meer er op een beeld te zien is, hoe langer mensen naar het beeld zullen kijken. En hoe langer mensen naar een beeld kijken, hoe groter de kans is dat ze doorklikken naar jouw pagina, omdat hun interesse is gewekt. 
 
 # 10. Wees niet bang om hulp te vragen
