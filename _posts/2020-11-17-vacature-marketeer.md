@@ -13,36 +13,36 @@ Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van 
 
 **Jouw profiel**
 
-Afgeronde relevante opleiding op minimaal HBO-niveau.
-Minimaal 2 jaar ervaring in een soortgelijke functie.
-Je hebt ervaring met fotografie en met het werken met Adobe Lightroom en Photoshop. InDesign en Illustrator zijn een pré.
-Je weet wat er speelt binnen het online medialandschap.
-Je bent communicatief sterk en je kunt je goed verplaatsen in de wensen van je klanten.
-Spreekt en schrijft vloeiend Nederlands. Engels is een pré.
-Je bent accuraat en kan goed zelfstandig werken.
-Je hebt een proactieve houding en komt regelmatig met nieuwe ideeën. 
-Je bent in het bezit van een B-rijbewijs.
+- Afgeronde relevante opleiding op minimaal HBO-niveau.
+- Minimaal 2 jaar ervaring in een soortgelijke functie.
+- Je hebt ervaring met fotografie en met het werken met Adobe Lightroom en Photoshop. InDesign en Illustrator zijn een pré.
+- Je weet wat er speelt binnen het online medialandschap.
+- Je bent communicatief sterk en je kunt je goed verplaatsen in de wensen van je klanten.
+- Spreekt en schrijft vloeiend Nederlands. Engels is een pré.
+- Je bent accuraat en kan goed zelfstandig werken.
+- Je hebt een proactieve houding en komt regelmatig met nieuwe ideeën. 
+- Je bent in het bezit van een B-rijbewijs.
 
 
 **Jouw werkzaamheden**
 
-Bepalen en schrijven van socialmediastrategieën.
-Het creëren en managen van creatieve en verrassende content voor social media middels een contentkalender.
-Regelmatige fotosessies bij diverse klanten en nabewerking in Lightroom en Photoshop.
-Het onderhouden van verschillende websites en online profielen, zoals Google, TripAdvisor, Eet.nu en Booking.com.
-Recensiebeheer met bijpassende tone of voice.
-Monitoren en analyseren van online resultaten.
-Schrijven van (SEO-proof) blogs.
-Intensief klantcontact.
+- Bepalen en schrijven van socialmediastrategieën.
+- Het creëren en managen van creatieve en verrassende content voor social media middels een contentkalender.
+- Regelmatige fotosessies bij diverse klanten en nabewerking in Lightroom en Photoshop.
+- Het onderhouden van verschillende websites en online profielen, zoals Google, TripAdvisor, Eet.nu en Booking.com.
+- Recensiebeheer met bijpassende tone of voice.
+- Monitoren en analyseren van online resultaten.
+- Schrijven van (SEO-proof) blogs.
+- Intensief klantcontact.
  
 
 **Wij bieden jou**
 
-Een toffe en gevarieerde baan in een leuk team.
-Een eigen laptop, eigen werktelefoon, gedeelde kantoorauto en professionele camera-apparatuur en software.
+- Een toffe en gevarieerde baan in een leuk team.
+- Een eigen laptop, eigen werktelefoon, gedeelde kantoorauto en professionele camera-apparatuur en software.
 - Reiskostenvergoeding en vakantiegeld.
-Lunch wordt verzorgd en tijdens thuiswerk-periodes ontvang je een thuiswerkvergoeding.
-Veel creatieve vrijheid en grote verantwoordelijkheid.
+- Lunch wordt verzorgd en tijdens thuiswerk-periodes ontvang je een thuiswerkvergoeding.
+- Veel creatieve vrijheid en grote verantwoordelijkheid.
 
 
 **Interesse?**
