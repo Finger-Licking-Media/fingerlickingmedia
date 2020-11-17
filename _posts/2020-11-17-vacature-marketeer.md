@@ -9,9 +9,10 @@ intro: Voor de marketingafdeling van Finger Licking Media zijn we op zoek naar e
 
 Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van verschillende klanten. Je bent niet zomaar een medewerker, maar ook fotograaf, designer en content-kameleon in één. Zo doen wij allang niet meer alleen de marketing voor restaurants, maar ook voor hotels, makelaars en toffe merken.
 
-[Beeld van klanten waarvoor je gaat werken](/assets/images/blog/vacature-content-marketeer-haarlem-fulltime.png)
+[Beeld van klanten waarvoor je gaat werken](/assets/images/blog/vacature-content-marketeer-haarlem-fulltime-2.jpg)
 
 **Jouw profiel**
+
 Afgeronde relevante opleiding op minimaal HBO-niveau.
 Minimaal 2 jaar ervaring in een soortgelijke functie.
 Je hebt ervaring met fotografie en met het werken met Adobe Lightroom en Photoshop. InDesign en Illustrator zijn een pré.
@@ -24,6 +25,7 @@ Je bent in het bezit van een B-rijbewijs.
 
 
 **Jouw werkzaamheden**
+
 Bepalen en schrijven van socialmediastrategieën.
 Het creëren en managen van creatieve en verrassende content voor social media middels een contentkalender.
 Regelmatige fotosessies bij diverse klanten en nabewerking in Lightroom en Photoshop.
@@ -35,6 +37,7 @@ Intensief klantcontact.
  
 
 **Wij bieden jou**
+
 Een toffe en gevarieerde baan in een leuk team.
 Een eigen laptop, eigen werktelefoon, gedeelde kantoorauto en professionele camera-apparatuur en software.
 - Reiskostenvergoeding en vakantiegeld.
@@ -43,4 +46,5 @@ Veel creatieve vrijheid en grote verantwoordelijkheid.
 
 
 **Interesse?**
+
 Door de huidige situatie zal het eerste gesprek digitaal plaatsvinden. Ben jij de kameleon die wij zoeken? Mail je motivatie en CV naar marlot@fingerlicking.media. 
