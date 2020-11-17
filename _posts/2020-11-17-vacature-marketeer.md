@@ -1,8 +1,8 @@
 ---
 title: Vacature Content Marketeer fulltime
 author: Marlot Bakker
-header-image: assets/images/blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
-featured-image: assets/images/blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
+header-image: blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
+featured-image: blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
 featured-image-alt: Beeld van klanten waarvoor je gaat werken
 intro: Voor de marketingafdeling van Finger Licking Media zijn we op zoek naar een Content Marketeer (fulltime). Finger Licking Media is een marketingbureau gevestigd in hartje Haarlem, opgezet vanuit de online restaurantgids Eet.nu. Eet.nu is met maandelijks 1,5 miljoen bezoekers en ruim 20.000 reserveerbare restaurants het grootste restaurantplatform van Nederland. Finger Licking Media is een jonge startup met klanten in diverse branches.
 ---
