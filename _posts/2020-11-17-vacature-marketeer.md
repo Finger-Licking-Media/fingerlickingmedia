@@ -9,7 +9,7 @@ intro: Voor de marketingafdeling van Finger Licking Media zijn we op zoek naar e
 
 Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van verschillende klanten. Je bent niet zomaar een medewerker, maar ook fotograaf, designer en content-kameleon in één. Zo doen wij allang niet meer alleen de marketing voor restaurants, maar ook voor hotels, makelaars en toffe merken.
 
-[Beeld van klanten waarvoor je gaat werken](/assets/images/blog/vacature-content-marketeer-haarlem-fulltime-2.jpg)
+![Beeld van klanten waarvoor je gaat werken](/assets/images/blog/vacature-content-marketeer-haarlem-fulltime-2.jpg)
 
 **Jouw profiel**
 
