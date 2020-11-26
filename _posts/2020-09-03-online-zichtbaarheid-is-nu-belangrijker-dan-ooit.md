@@ -2,7 +2,7 @@
 title: Online zichtbaarheid is nu belangrijker dan ooit! 
 author: Anouk van der Tak
 header-image: blog/hotel-amsterdam-iphone.jpg
-featured-image: makelaar-haarlem-iphone.jpg
+featured-image: blog/makelaar-haarlem-iphone.jpg
 featured-image-alt: Iphone in de hand van makelaar
 intro: Het coronavirus heeft ons al een half jaar in haar macht. We zitten zo veel mogelijk thuis en voor spontane uitstapjes is helaas weinig ruimte. We moeten plannen. Op basis van wat maakt men plannen? Juist! Op basis van informatie die zij online vinden. Hoewel je altijd al wist dat online zichtbaarheid belangrijk is, is nu hét moment om jouw online zichtbaarheid naar een hoger level te tillen. 
 ---

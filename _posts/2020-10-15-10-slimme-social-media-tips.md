@@ -1,5 +1,5 @@
 ---
-featured-image: stationary.jpg
+featured-image: blog/stationary.jpg
 featured-image-alt: Social media tips
 author: Emily Joosten
 header-image: blog/social-media-tips.jpg

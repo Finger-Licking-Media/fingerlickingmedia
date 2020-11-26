@@ -1,5 +1,5 @@
 ---
-featured-image: laat-je-gasten-watertanden/image4.jpg
+featured-image: blog/laat-je-gasten-watertanden/image4.jpg
 featured-image-alt: Hamburger
 author: Marlot Bakker
 title: Laat je gasten watertanden met jouw foto's!
