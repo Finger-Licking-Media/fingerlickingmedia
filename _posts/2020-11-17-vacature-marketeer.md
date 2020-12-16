@@ -7,8 +7,6 @@ featured-image-alt: Beeld van klanten waarvoor je gaat werken
 intro: Voor de marketingafdeling van Finger Licking Media zijn we op zoek naar een Content Marketeer (fulltime). Finger Licking Media is een marketingbureau gevestigd in hartje Haarlem, opgezet vanuit de online restaurantgids Eet.nu. Eet.nu is met maandelijks 1,5 miljoen bezoekers en ruim 20.000 reserveerbare restaurants het grootste restaurantplatform van Nederland. Finger Licking Media is een jonge startup met klanten in diverse branches.
 ---
 
-Note: momenteel zijn de sollicitaties in volle gang. Je kunt t/m 3 december je sollicitatie insturen.
-
 Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van verschillende klanten. Je bent niet zomaar een medewerker, maar ook fotograaf, designer en content-kameleon in één. Zo doen wij allang niet meer alleen de marketing voor restaurants, maar ook voor hotels, makelaars en toffe merken.
 
 ![Beeld van klanten waarvoor je gaat werken](/assets/images/blog/vacature-content-marketeer-haarlem-fulltime-2.jpg)
@@ -28,9 +26,9 @@ Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van 
 
 **Jouw werkzaamheden**
 
-- Bepalen en schrijven van socialmediastrategieën.
-- Het creëren en managen van creatieve en verrassende content voor social media middels een contentkalender.
-- Regelmatige fotosessies bij diverse klanten en nabewerking in Lightroom en Photoshop.
+- Zelfstandig bepalen en schrijven van socialmediastrategieën.
+- Het creëren en managen van creatieve organische content voor social media middels een contentkalender.
+- Regelmatige fotosessies bij diverse klanten door het hele land en nabewerking in Lightroom en Photoshop.
 - Het onderhouden van verschillende websites en online profielen, zoals Google, TripAdvisor, Eet.nu en Booking.com.
 - Recensiebeheer met bijpassende tone of voice.
 - Monitoren en analyseren van online resultaten.
