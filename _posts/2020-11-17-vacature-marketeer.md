@@ -14,7 +14,6 @@ Als Content Marketeer ben je verantwoordelijk voor het online visitekaartje van 
 **Jouw profiel**
 
 - Afgeronde relevante opleiding op minimaal HBO-niveau.
-- Minimaal 2 jaar ervaring in een soortgelijke functie.
 - Je hebt ervaring met fotografie en met het werken met Adobe Lightroom en Photoshop. InDesign en Illustrator zijn een pré.
 - Je weet wat er speelt binnen het online medialandschap.
 - Je bent communicatief sterk en je kunt je goed verplaatsen in de wensen van je klanten.
