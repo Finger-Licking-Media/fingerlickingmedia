@@ -1,5 +1,5 @@
 ---
-title: Vacature Content Marketeer fulltime
+title: Vacature Content Marketeer fulltime (gesloten)
 author: Marlot Bakker
 header-image: blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
 featured-image: blog/header-vacature-content-marketeer-fulltime-haarlem-1.jpg
